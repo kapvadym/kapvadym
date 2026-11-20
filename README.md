@@ -37,4 +37,4 @@ Also available for small automation projects on the side.
 
 ---
 
-📍 Neunkirchen, Lower Austria · kap.vadym@gmail.com · [LinkedIn](https://www.linkedin.com/in/vadym-kapinos-61186a29a/)
+📍 Neunkirchen, Lower Austria · kap.vadym@gmail.com · [LinkedIn](https://www.linkedin.com/in/vadym-kapinos/)
